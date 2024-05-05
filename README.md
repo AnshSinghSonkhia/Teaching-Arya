@@ -1,1 +1,1 @@
-# Teaching-Arya
+# Teaching Arya
